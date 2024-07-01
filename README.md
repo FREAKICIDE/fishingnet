@@ -1,2 +1,2 @@
 # fishingnet
-i dont rlly hawve friends  i activley talk to on here,... Umm hit me up 
+i dont rlly hawve friends  i activley talk to on pt,... Umm hit me up 
